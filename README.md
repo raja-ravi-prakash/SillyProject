@@ -7,3 +7,7 @@
 ```
 NOTE: Don't message me that my code is unoptimized. (i am learning bruhh)
 ```
+
+```
+AnotherNote: If you are a Recruiter/HR, please don't consider this, i did this for fun 🥺🥺🥺 .
+```
